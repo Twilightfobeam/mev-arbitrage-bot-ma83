@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered MEV arbitrage bot | auto-sell + blockchain-scanning, the #1 MEV arbitrage bot. Includes auto-sell and blockchain-scanning for a faster and
 
 
 
